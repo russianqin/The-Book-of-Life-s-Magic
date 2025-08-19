@@ -438,9 +438,9 @@ S1E12 A Computer, a Plastic Pony, and a Case of Beer
 
 ### 也谈《辐射》世界的战前历史
 
-【本文首发自[触乐网](https://link.jianshu.com/?t=http://www.chuapp.com/2015/11/10/215189.html)】
+【本文首发自[触乐网](http://www.chuapp.com/2015/11/10/215189.html)】
 
-编者按：本文编译自[Gamesradar.com](https://link.jianshu.com/?t=http://www.gamesradar.com/history-world-fallout/)，原文标题《The history of the world according to Fallout》，作者[Ashley Reed](https://link.jianshu.com/?t=http://www.gamesradar.com/profile/GR_AshleyReed/)。  
+编者按：本文编译自[Gamesradar.com](http://www.gamesradar.com/history-world-fallout/)，原文标题《The history of the world according to Fallout》，作者[Ashley Reed](http://www.gamesradar.com/profile/GR_AshleyReed/)。  
 
 《辐射》世界的历史源远流长，但对于没有玩过系列前三代、新维加斯以及两代《废土》作品的玩家来说，要从这些零散的游戏、及其大量的细节中了解到这段史诗仍有些困难。
 
