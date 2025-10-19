@@ -14,13 +14,13 @@
 
 蛰伏不是放弃，而是对无效内卷的战略性退出，是精力的重新聚焦。
 
-### 第一章 认识自我
+### 第一章 职场全息图
 
-> 我的故事
+> 认识你的工作环境
 
 
 ### 第二章 健康养生
-### 第三章 珍惜时间
+### 第三章 我的故事
 ## 第二部分 人生立志
 
 法国思想家帕斯卡说：“人是一根会思考的芦苇。” 人很脆弱，但能够思考，便拥有无限可能。
@@ -360,54 +360,6 @@ p.s.有意思的是，游戏中的西格蒙德（Sigmund）公司，在现实中
 >“这是魔法议会总部，‘天空之城’，阿林厄！”  
 >
 >简单朴素，平铺直叙，却让听到的魔法师们潸然泪下。
-
----
-
-### 打油小结——《小谢尔顿》第一季观后感
-
-S1E22 Vanilla Ice Cream, Gentleman Callers, and a Dinette Set
-
-挥慧剑绅商相见，立誓书常异分殊。
-
-S1E21 Summer Sausage, a Pocket Poncho, and Tony Danza
-
-坠情网钢直花甲，牛孺子天真萌新。
-
-S1E20 A Dog, A Squirrel, and A Fish Named Fish
-
-宁鸡犬老骥伏枥，克心魔菜鸟魂惊。
-
-S1E19 Gluons, Guacamole, and the Color Purple
-
-姥吾老夕阳情热，佑吾幼春草明发。
-
-S1E18 A Mother, a Child, and a Blue Man's Backside
-
-未成年喜提禁果，暴风雨怒散墙阋。
-
-S1E17 Jiu-Jitsu, Bubble Wrap, and Yoo-Hoo
-
-弟中弟桥道顿递，虓更虓鸡舍魂销。
-
-S1E16 Killer Asteroids, Oklahoma, and a Frizzy Hair Machine
-
-自反缩人前圣显，畏登台伶途暗晦。
-
-S1E15 Dolomite, Apple Slices, and a Mystery Woman
-
-五阴炽鄙夷地理，求不得情谊掉期。
-
-S1E14 Potato Salad, a Broomstick, and Dad's Whiskey
-
-思稻粱慈母出仕，强独立孪生自医。
-
-S1E13 A Sneeze, Detention, and Sissy Spacek
-
-谋免疫觅无菌地，终有恙聆安魂曲。
-
-S1E12 A Computer, a Plastic Pony, and a Case of Beer
-
-萧墙兴龃龉，童子入算门。
 
 ---
 
